@@ -1,4 +1,4 @@
-# tarushv kosgi
+
 
 about: i am a high school freshman currently attending independence high and the academies of loudoun
 
